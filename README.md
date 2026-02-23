@@ -1,4 +1,4 @@
-## Hello there 👋
+## Hello there 💫⚔️
 
 - 👋 Hi, I’m @CPUcademy.
 - ⚡ My name is Tymoteusz Kołodziejczyk. I am a Software Developer.
